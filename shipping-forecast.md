@@ -1,0 +1,1 @@
+VIKING Southerly 6 to gale 8, ocassionally severe gale 9 later
